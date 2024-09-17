@@ -1,11 +1,7 @@
-Ecoutez cette histoire
-Que l'on m'a racontée.
-Du fond de ma mémoire,
-Je vais vous la chanter.
-Elle se passe en Provence,
-Au milieu des moutons,
-Dans le sud de la France,
-Au pays des santons.
+A la claire fontaine,
+En allant me promener,
+J'ai trouvé l'eau si belle,
+Que je m'y suis baigné,
 
 Quand il vint au domaine,
 Y avait un beau troupeau.
