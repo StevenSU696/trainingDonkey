@@ -1,11 +1,7 @@
-Ecoutez cette histoire
-Que l'on m'a racontée.
-Du fond de ma mémoire,
-Je vais vous la chanter.
-Elle se passe en Provence,
-Au milieu des moutons,
-Dans le sud de la France,
-Au pays des santons.
+Quand reverrais-je,
+Mon petit village,
+Fumer la cheminée,
+Et en qu'elle saison,
 
 Quand il vint au domaine,
 Y avait un beau troupeau.
